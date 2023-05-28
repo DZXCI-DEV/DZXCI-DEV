@@ -6,4 +6,4 @@
 3-*cats ฅ^•ﻌ•^ฅ*
 4-*obama👨‍⚕️*
 
-[https://media.tenor.com/_DOBjnGspYAAAAAC/code-coding.gif](https://media.tenor.com/_DOBjnGspYAAAAAC/code-coding.gif)
+(https://media.tenor.com/_DOBjnGspYAAAAAC/code-coding.gif)
